@@ -1,3 +1,3 @@
 # Idlofi_WGTIK_2022
 
-Contoh
+Hasil jadi https://idlofizahir86.github.io/
